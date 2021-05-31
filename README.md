@@ -21,6 +21,6 @@ iam harsha, understood? :).
 -  Twitter - [Click Here](https://twitter.com/harsha061036068)
 -  Facebook - [Click Here](https://www.facebook.com/critical.harsha.94/)
 
-**© [harsha](https://github.com/AZharsha07)**
+**© [harsha](https://github.com/iamharsha07)**
 
 **Thanks for your time :)**
