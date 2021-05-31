@@ -20,6 +20,7 @@ iam harsha, understood? :).
 -  Youtube - [Click Here](https://www.youtube.com/channel/UC2zAlF353I0el56CRGWLEJg)
 -  Twitter - [Click Here](https://twitter.com/harsha061036068)
 -  Facebook - [Click Here](https://www.facebook.com/critical.harsha.94/)
+-  Instagram - [Click Here](https://www.instagram.com/iam_harsha07/)
 
 **© [harsha](https://github.com/iamharsha07)**
 
