@@ -9,7 +9,7 @@ iam harsha, understood? :).
 - 😄 I'm currently learning discord.js and py
 - 💎 I watch anime and read manga lmao
 - 📣 I have a youtube [channel](https://www.youtube.com/channel/UC2zAlF353I0el56CRGWLEJg) with no videos lel
-- ⚡ Fun fact: I dont know coding much but im learning heh
+- ⚡ Fun fact: I am a good boy
 
 
 ---
